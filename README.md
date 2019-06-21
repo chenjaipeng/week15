@@ -44,3 +44,6 @@
 [**准备开会吗？边走边谈吧**](http://www.iqiyi.com/w_19rrnn9w25.html)  
 [**关于女性性行为的简单事实**](https://www.ted.com/talks/sarah_barmak_the_uncomplicated_truth_about_women_s_sexuality/discussion?language=zh-cn)  
 [**玛丽莉·欧贝佐：如何变得更有创意？去散个步**](https://www.ted.com/talks/marily_oppezzo_want_to_be_more_creative_go_for_a_walk/discussion?language=zh-cn)
+
+* 文章引用均来自以上视频
+
